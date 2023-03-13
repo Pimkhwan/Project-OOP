@@ -7,5 +7,5 @@ Member:
 
     Puriwong Lertnantaporn 
     Saranpong Maneesopon
-    Pimkhwan 
+    Pimkhwan Kamendee
 
